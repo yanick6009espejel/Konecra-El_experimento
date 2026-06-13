@@ -1,0 +1,1 @@
+# Konecra-El_experimento
